@@ -62,3 +62,5 @@
 57.  [Детское Общественное Объединение "СМиД" (Союз Мальчишек и Девчонок)](https://forms.yandex.ru/admin/answer-details/adde0b9338cba37974dc1a90bca474f2ef615038) [[Видео]](https://vk.com/video-149194903_456239057?list=c619281fde6a26d43d)  [[Фото]](https://sun9-50.userapi.com/c841634/v841634699/7b593/PIiFjNXzsEo.jpg)
 58. [Бабушки, будьте бдительны!](https://forms.yandex.ru/admin/answer-details/90ec7297a11b3f0ee45697b055c093c434a65b99)[[Файлы]](https://disk.yandex.ru/d/1ls4F-kuByXTGQ)
 59. [Наш архитектор Сильвио Данини](https://forms.yandex.ru/admin/answer-details/a9367423db39d76174812d7df1419750dbf7f5d8) [[Файлы]](https://disk.yandex.ru/d/NjuncbD2j6KaZA)
+60. [Конкурсно-игровая программа "За безопасность движения всей семьей!"](https://forms.yandex.ru/admin/answer-details/2d7da1ed51585e6653e2ab4b2ca2e676eeb70a6b)[[Файлы]](https://disk.yandex.com/d/_Mm98cqN7pA3RQ)
+61. [ДУША (детская управленческая школа актива)](https://forms.yandex.ru/admin/answer-details/acd17950364741a2b95d6263e8a8c2cd166542bf)[[Файлы]](https://disk.yandex.com/d/fUtrC-D3KEGByw)
