@@ -3,7 +3,7 @@
   [Все ответы в таблице excel](https://disk.yandex.ru/i/xvD-qATz3-DA4w)
   [Папка с файлами, прикрепленными к ответам](https://disk.yandex.ru/d/MOES0BFEUf-InA)
 
-1. [Практика ВСО "ВЕГА"](https://forms.yandex.ru/admin/answer-details/b5408429ab9dcee70df069794ba95d431afc312c)[Файлы]() 
+1. [Практика ВСО "ВЕГА"](https://forms.yandex.ru/admin/answer-details/b5408429ab9dcee70df069794ba95d431afc312c)
 2. [Школа барабанщиков"Бей, барабан!!"](https://forms.yandex.ru/admin/answer-details/5f072e0f1ed00e6ea3e71ec96fe5dece4468cea1)  [[Файлы](https://disk.yandex.ru/d/wgFSZNN9i9LK_A)]
 3. [Театрализация исторического процесса](https://forms.yandex.ru/admin/answer-details/08b941eb1c709213a2daf9b16246580c99ee2d62)  [[Файлы](https://disk.yandex.ru/d/ZLfVI3MiZSA6ig)]
 4. [Пора выбирать здоровье, свободу, успех!](https://forms.yandex.ru/admin/answer-details/6d2531319df6ee1c415498db811585a2a2a87bad)  [[Файлы](https://disk.yandex.ru/d/B5eLpdtEoOSulA)]
@@ -57,3 +57,12 @@
 52.  [Конкурсно-игровая программа «Быть политиком хочу!»](https://forms.yandex.ru/admin/answer-details/ae424623a73393c06a3cecc6de5b740686be4fd4)  [[Файлы](https://disk.yandex.ru/d/MerIYtJ6W-S6hQ)]
 53.  [Мультфильм в твоем смартфоне](https://forms.yandex.ru/admin/answer-details/d34fbebaff6b5909684a471b5c8856dba60e324b)  [[Файлы](https://disk.yandex.ru/d/2g13DzjoT-noAw)]
 54.  [Национальный конкурс детских театров моды "Золотая игла"](https://forms.yandex.ru/admin/answer-details/d4627c6ceedd4e8874cdfffbe90f7faad8479db0)  [[Файлы](https://disk.yandex.ru/d/Jo8KkERGIfNlYg)]
+55.  [«ВАРТЕМЯГИ - ЗОНА ОТДЫХА «СТОРОЖЕВАЯ ГОРА» «Оазис детства»](https://forms.yandex.ru/admin/answer-details/3e720e3283d38e1a217836f1d4cf672b5679fa38) [[Файлы]](https://disk.yandex.ru/d/sabinSNH6UiYJA)
+56.  [интенсив по социальному проектированию «Я – гражданин России»](https://forms.yandex.ru/admin/answer-details/b4565b7c16b4ae017319bdf08c70be960887199e) [[Файлы]](https://disk.yandex.ru/d/bolN5WA9sQFmjA)
+57.  [Детское Общественное Объединение "СМиД" (Союз Мальчишек и Девчонок)](https://forms.yandex.ru/admin/answer-details/adde0b9338cba37974dc1a90bca474f2ef615038) [[Видео]](https://vk.com/video-149194903_456239057?list=c619281fde6a26d43d)  [[Фото]](https://sun9-50.userapi.com/c841634/v841634699/7b593/PIiFjNXzsEo.jpg)
+58. [Бабушки, будьте бдительны!](https://forms.yandex.ru/admin/answer-details/90ec7297a11b3f0ee45697b055c093c434a65b99)[[Файлы]](https://disk.yandex.ru/d/1ls4F-kuByXTGQ)
+59. [Наш архитектор Сильвио Данини](https://forms.yandex.ru/admin/answer-details/a9367423db39d76174812d7df1419750dbf7f5d8) [[Файлы]](https://disk.yandex.ru/d/NjuncbD2j6KaZA)
+60. [Конкурсно-игровая программа "За безопасность движения всей семьей!"](https://forms.yandex.ru/admin/answer-details/2d7da1ed51585e6653e2ab4b2ca2e676eeb70a6b)[[Файлы]](https://disk.yandex.com/d/_Mm98cqN7pA3RQ)
+61. [ДУША (детская управленческая школа актива)](https://forms.yandex.ru/admin/answer-details/acd17950364741a2b95d6263e8a8c2cd166542bf)[[Файлы]](https://disk.yandex.com/d/fUtrC-D3KEGByw)
+62. [Всероссийская Юниор-Лига КВН](https://forms.yandex.ru/admin/answer-details/0a8f576076a235b7168005a83510fa0239576a77)[[Файлы]](https://disk.yandex.ru/d/CbrKU5l_LW8_Qw)
+63. [Федеральный проект "Мы вместе: Разные. Смелые. Молодые](https://forms.yandex.ru/admin/answer-details/a8c84c91a797b32f76b4e8a56b512f1629be0172)[[Файлы]](https://disk.yandex.ru/d/TQtyTyr6inuKog)
